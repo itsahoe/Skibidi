@@ -1,24 +1,18 @@
 ⚠️‼️COMMENT ISSUES IF BLOCKED‼️⚠️
  ALL WEBSITES CHECKED EVERY WEEK
 Interstellar:
-https://interstellar-bigman.vercel.app/
 https://holy-unblocker-public.vercel.app/
 https://my-developer-portfolio.pages.dev/
 https://devamiscrazyatfortnite.vercel.app/
 ______________________________________________
 Doge | V4
 https://i-n-d-i-a-n.vercel.app/
-https://v4dogev4.vercel.app/
-https://renrendane.laviewddns.com/
 https://v4-bradleytechmans-projects.vercel.app/
 https://v4-git-main-bradleytechmans-projects.vercel.app/
-https://monke-lyart.vercel.app/
 ______________________________________________
 Zatoga:
 https://interact.learn.trivialime.com/
-https://zatoga.learn.trivialime.com/
-https://zatoga.class.yogabite.org/
-https://learn.class.yogabite.org/
+https://zatoga-lite.pages.dev
 ______________________________________________
 Art Class:
 https://artclassv3-7keg99e0k-fishnu223.vercel.app/
@@ -26,8 +20,8 @@ https://artclass-a7hg085wv-921963-lcpsorg.vercel.app/
 https://artclass-static.vercel.app/
 ______________________________________________
 Nettle Web + WhiteSpider:
-https://nettleweb.pages.dev/
-https://whitespider-unlocked.vercel.app/
+all of them got blocked. 
+more coming soon when i feel like it
 ______________________________________________
 Other Games:
 https://coolmathgames.gitlab.io/
@@ -35,7 +29,6 @@ https://bigfoot-livid.vercel.app/
 https://infinite-craft.org/
 https://unblocked-minecraft.github.io/
 https://history-spot.com/
-https://www.hoodamath.com/
 https://guess-the-year.davjhan.com/
 https://paper-trader.davjhan.com/game/
 _____________________________________________
