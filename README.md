@@ -6,9 +6,7 @@ https://my-developer-portfolio.pages.dev/
 https://devamiscrazyatfortnite.vercel.app/
 ______________________________________________
 Doge | V4
-https://i-n-d-i-a-n.vercel.app/
-https://v4-bradleytechmans-projects.vercel.app/
-https://v4-git-main-bradleytechmans-projects.vercel.app/
+Blocked yeasterday:(
 ______________________________________________
 Zatoga:
 https://interact.learn.trivialime.com/
